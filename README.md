@@ -1,4 +1,4 @@
-### Hi there i'm Annamaria and i'm from Italy👋
+### Hi there 👋
 
 
 <!--
